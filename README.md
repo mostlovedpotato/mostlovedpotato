@@ -5,6 +5,7 @@
 - 👯 I’m looking to collaborate on web application.
 - 🤔 I’m looking for help with nodejs.
 - 💬 Ask me about Anything.
+- I'm Working on web Projects (Not Displayed here) In case You can contact me through Discord 
 
 - 😄 Pronouns: He/He/He
 - ⚡ Fun fact: I love making friends but I don't have many.
