@@ -12,7 +12,7 @@
 
 ### Connect with me:
 
-**With Discord id :** **nownow#9251**
+**With Discord id :** **pain#0017**
 
 
 ### Languages and Tools:
