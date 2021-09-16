@@ -13,7 +13,7 @@
 
 ### Connect with me:
 
-**With Discord id :** **pain#0017**
+**With Discord id 
 
 
 ### Languages and Tools:
