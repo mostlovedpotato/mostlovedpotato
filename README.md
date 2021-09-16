@@ -13,7 +13,6 @@
 
 ### Connect with me:
 
-**With Discord id 
 
 
 ### Languages and Tools:
