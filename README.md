@@ -14,6 +14,7 @@
 ### Connect with me:
 
 **Github** [autoSavedInstace](https://github.com/autoSaveInstance)
+**Discord** [Pain#0017](www.discord.com)
 
 ### Languages and Tools:
 
