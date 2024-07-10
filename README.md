@@ -13,7 +13,7 @@
 
 ### Connect with me:
 
-**Github** [AutoSavedInstance](https://github.com/autoSaveInstance?tab=repositories)
+**Github** [Yinstardev](https://github.com/yinstardev?tab=repositories)
 
 **Discord** [primo#6984](www.discord.com)
 
